@@ -120,12 +120,21 @@ Efficiency of Oil Pump varies from type to type:
 Traffic Barricades Are Designed To Offer An Impactresistant Barrier To Vehicle Access Near Traffic Signals , Whilst Allowing Access To Pedestrians ,At Preasent Due To The Poor Management Of Traffic Management Number Of People Are Voilating The Traffic Rules Jumping The Signals Even After Imposing Heafty Fines They Tend To Do This .Therby We Want To Conclude Implementing The Traffic Barricdes Will Stop Everyone Jumping The Signas Saving Numbre Of Lives.
 
 
+![Screenshot (20)](https://user-images.githubusercontent.com/113783547/190863925-4d78a3a1-7251-4869-bbdd-d871b7bff022.png)
+
+![Screenshot (16)](https://user-images.githubusercontent.com/113783547/190863950-d14b8d00-383a-49c4-8696-6d0bb752feeb.png)
+
+![Screenshot (17)](https://user-images.githubusercontent.com/113783547/190863961-8b952050-2cdd-4c24-9938-4eaed3b6d290.png)
 
 
+![Screenshot (14)](https://user-images.githubusercontent.com/113783547/190863937-a3a7fa0c-1219-4bfd-ae01-18686d2f8b76.png)
+
+![Screenshot (15)](https://user-images.githubusercontent.com/113783547/190863967-3de94d28-a123-4d62-a12b-ecd23fb0b7b8.png)
 
 
+![Screenshot (18)](https://user-images.githubusercontent.com/113783547/190863981-66f4b403-0033-472a-aebb-2e1adfc9219a.png)
 
-
+![Screenshot (19)](https://user-images.githubusercontent.com/113783547/190863985-4607342d-ceaa-491b-9ac5-377f4bca144c.png)
 
 
 
